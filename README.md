@@ -1,0 +1,5 @@
+## GS primeiro semestre 3ECR
+### integrantes
+86356 - ALLAN FERREIRA BARBOSA <br />
+85586 - ARTHUR SAMPAIO MARTINS <br />
+86250 - GABRIEL BATISTA DE CARVALHO 
